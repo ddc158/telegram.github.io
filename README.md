@@ -1,5 +1,6 @@
 # telegram群组
 telegram中文群组
+开元棋牌 集团官方诚邀 劫持 渗透 Seo 短信 自媒体 流量 私域 站长 等一切资源大佬合作变现 有意向介绍来合作长期分红佣金8% https://t.me/ddc158 https://t.me/ddc158.cc
 1. 👥中文群组推广 [https://t.me/jinrisouso](https://t.me/jinrisouso)
 2. 👥中文频道/群组/机器人分享 [https://t.me/hao88](https://t.me/hao88)
 3. 👥中文暗网新地址♠️ [https://t.me/almvdkg6vrpmkvk4onion](https://t.me/almvdkg6vrpmkvk4onion)
